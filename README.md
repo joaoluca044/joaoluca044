@@ -1,16 +1,13 @@
-## Hi there 👋
+JOAO LUCAS 
 
-<!--
-**joaoluca044/joaoluca044** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ESTUDANTE 
 
-Here are some ideas to get you started:
+FAÇO CURSO DA PLATAFORMA ALURA 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+TENHO 15 ANOS DE IDADE 
+
+SOU PALMERENSE
+
+![](https://media1.tenor.com/m/Em5BxiSLDNgAAAAd/dancinha-comemorando.gif)
+
+![](https://media1.tenor.com/m/Q0g_YYmH9QgAAAAC/dont-cry-crying.gif)
